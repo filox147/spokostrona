@@ -1,2 +1,0 @@
-# spokostrona
-spokostrona
